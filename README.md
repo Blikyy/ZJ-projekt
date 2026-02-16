@@ -1,2 +1,3 @@
 # ZJ-projekt
-# dva homosexualove
+# Fuck system voe!!!!!!
+
