@@ -1,1 +1,2 @@
 # ZJ-projekt
+# dva homosexualove
